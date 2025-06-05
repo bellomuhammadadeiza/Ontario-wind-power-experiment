@@ -1,4 +1,6 @@
-# Ontario's Wind Power Experiment: Who Pays, Who Gains?
+
+
+## Policy Brief: Ontario's Wind Power Experiment: Who Pays, Who Gains?
 
 ### Introduction
 
