@@ -1,6 +1,6 @@
+# POLICY BRIEF
 
-
-## Policy Brief: Ontario's Wind Power Experiment: Who Pays, Who Gains?
+## Ontario's Wind Power Experiment: Who Pays, Who Gains?
 
 ### Introduction
 
